@@ -1,3 +1,4 @@
+![alt text](Avatar.jpg)
 # Gorbachev Yaroslav Sergeevich
 
 **Email:** eroslavka@yandex.ru  
